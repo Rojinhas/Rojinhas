@@ -1,6 +1,6 @@
 ## Desenvolvedora Fullstack Java e Javascript
 
-Olá, meu nome é Sarah Yukino.
+Olá, meu nome é Ruth Rojas.
 
 ## Redes sociais:
 
